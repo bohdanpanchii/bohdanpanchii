@@ -1,1 +1,0 @@
-# bohdanpanchii.github.io
